@@ -1,2 +1,2 @@
-# nakapitelniy_k
+# do'kon
 bu bizni loyiha bo'ladi
